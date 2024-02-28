@@ -1,1 +1,4 @@
 - WOW Visual Encyclopedia : https://fliphtml5.com/fwspv/obep/basic/101-150
+- Dinosaurs: https://fliphtml5.com/fwspv/idvo/basic
+- Oceans: https://online.fliphtml5.com/xybyo/nwfs/#p=145
+- 
