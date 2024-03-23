@@ -6,4 +6,9 @@
 - Geography: https://fliphtml5.com/tilmq/gvxs/Geography__A_Visual_Encyclopedia_%28_PDFDrive_%29/
 - Animals: https://fliphtml5.com/rynqe/njrz/Animals_A_Visual_Encyclopedia/
 - Human body : https://fliphtml5.com/zwpbz/qqwd/Human_Body_A_Visual_Encyclopedia/
-- 
+
+
+My drawings : 
+- https://www.instagram.com/p/C4nxum3vIZp/?img_index=1
+- https://www.instagram.com/p/C2BuIJDP6jR/?img_index=1
+- https://www.instagram.com/p/CzlOprsPKBc/?img_index=1
