@@ -34,11 +34,12 @@ My drawings :
 
 #### Varaha
 
-<img width="465" alt="Screenshot 2024-06-23 at 4 15 18 PM" src="https://github.com/sreegithub19/drawings/assets/55496113/4ce7bc4a-87bb-4a89-a00e-abd7356534d2">
 ![image](https://github.com/sreegithub19/drawings/assets/55496113/6dc0c346-0523-48cf-91e0-9477fac2c386)
 ![image](https://github.com/sreegithub19/drawings/assets/55496113/51581302-f855-4b60-a73d-f1a40c4db147)
 ![image](https://github.com/sreegithub19/drawings/assets/55496113/8e8c2f62-1b02-4c11-a551-95a6840be2f9)
 ![image](https://github.com/sreegithub19/drawings/assets/55496113/37728d82-f184-46ff-88d4-f631e98e1f74)
+<img width="465" alt="Screenshot 2024-06-23 at 4 15 18 PM" src="https://github.com/sreegithub19/drawings/assets/55496113/4ce7bc4a-87bb-4a89-a00e-abd7356534d2">
+
 
 
 
