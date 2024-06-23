@@ -15,8 +15,9 @@ My drawings :
 
 
 ## Devotional (Tanjore Art) :
+ - [Matsya Avatar](#matsya)
 
-1. Matsya Avatar
+1. Matsya Avatar (#matsya)
    
 ![image](https://github.com/sreegithub19/drawings/assets/55496113/72d1df56-55a9-4459-9dc2-e4463b86d3ee)
 ![image](https://github.com/sreegithub19/drawings/assets/55496113/78d8db97-29f8-4b83-9289-b04bccff9341)
@@ -29,6 +30,11 @@ My drawings :
 
 <img width="526" alt="Screenshot 2024-06-23 at 3 36 05 PM" src="https://github.com/sreegithub19/drawings/assets/55496113/f4f90ec9-07a6-4b50-ac07-939827dda4e4">
 <img width="405" alt="image" src="https://github.com/sreegithub19/drawings/assets/55496113/eeed6334-4f89-44fd-8d68-813e21833806">
+![image](https://github.com/sreegithub19/drawings/assets/55496113/1fe8dc93-7a3a-49a9-b909-47cfd9d27b5f)
+
+3. Varaha
+
+
 
 
 
