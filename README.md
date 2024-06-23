@@ -25,6 +25,9 @@ My drawings :
 ![image](https://github.com/sreegithub19/drawings/assets/55496113/e14155c2-bb13-4eb4-881d-efb28d7d8452)
 
 
+2. Kurma Avatar
+
+<img width="526" alt="Screenshot 2024-06-23 at 3 36 05 PM" src="https://github.com/sreegithub19/drawings/assets/55496113/f4f90ec9-07a6-4b50-ac07-939827dda4e4">
 
 
 
