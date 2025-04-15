@@ -1,8 +1,8 @@
-- WOW Visual Encyclopedia : https://fliphtml5.com/fwspv/obep/basic/101-150
+- WOW Visual Encyclopedia : https://online.fliphtml5.com/fwspv/obep/
 - Dinosaurs: https://online.fliphtml5.com/idvnn/bfzn/
 - Oceans: https://online.fliphtml5.com/xybyo/nwfs/#p=145
-- Space: https://fliphtml5.com/wvnuk/skjr/Space_A_Visual_Encyclopedia/
-- Inventions : https://fliphtml5.com/pwwiv/mhnw/Inventions_-_A_Visual_Encyclopedia/
+- Space: https://online.fliphtml5.com/wvnuk/skjr/#isNeat
+- Inventions : https://online.fliphtml5.com/pwwiv/mhnw/#isNeat
 - Geography: https://fliphtml5.com/tilmq/gvxs/Geography__A_Visual_Encyclopedia_%28_PDFDrive_%29/
 - Animals: https://fliphtml5.com/rynqe/njrz/Animals_A_Visual_Encyclopedia/
 - Human body : https://fliphtml5.com/zwpbz/qqwd/Human_Body_A_Visual_Encyclopedia/
