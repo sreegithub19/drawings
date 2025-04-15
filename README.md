@@ -1,5 +1,5 @@
 - WOW Visual Encyclopedia : https://fliphtml5.com/fwspv/obep/basic/101-150
-- Dinosaurs: https://fliphtml5.com/fwspv/idvo/basic
+- Dinosaurs: https://online.fliphtml5.com/idvnn/bfzn/
 - Oceans: https://online.fliphtml5.com/xybyo/nwfs/#p=145
 - Space: https://fliphtml5.com/wvnuk/skjr/Space_A_Visual_Encyclopedia/
 - Inventions : https://fliphtml5.com/pwwiv/mhnw/Inventions_-_A_Visual_Encyclopedia/
